@@ -5,6 +5,7 @@
 - 📫 How to reach me ... instagram: @julio.maltaa
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm left handed and guitarrist, I don't have nothing more to talk about...
+- :)
 
 <!---
 NotANamelessGhoul/NotANamelessGhoul is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
